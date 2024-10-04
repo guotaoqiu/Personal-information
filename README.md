@@ -1,1 +1,1 @@
-Store my personal information
+Store my personal information.
